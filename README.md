@@ -1,0 +1,2 @@
+# GuidelinesSoloBoost
+Guidelines and profile
